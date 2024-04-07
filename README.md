@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **pawankanan@gmail.com**
 
-- 📄 Know about my experiences [https://flowcv.com/resume/otgmgp5v3e](https://flowcv.com/resume/otgmgp5v3e)
+- 📄 Know about my experiences [file:///C:/Users/Admin/Downloads/Pawan%20SDE1.pdf](file:///C:/Users/Admin/Downloads/Pawan%20SDE1.pdf)
 
 - ⚡ Fun fact **I enjoy funny moments😊**
 

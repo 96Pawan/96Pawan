@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **pawankanan@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/Admin/Downloads/Pawan%20SDE1.pdf](file:///C:/Users/Admin/Downloads/Pawan%20SDE1.pdf)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1hANIKNWgRYwVpfSUKlUrrF8FMfIoN4O9/view?usp=drivesdk](https://drive.google.com/file/d/1hANIKNWgRYwVpfSUKlUrrF8FMfIoN4O9/view?usp=drivesdk)
 
 - ⚡ Fun fact **I enjoy funny moments😊**
 
